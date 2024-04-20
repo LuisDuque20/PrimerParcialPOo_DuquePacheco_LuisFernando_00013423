@@ -1,1 +1,1 @@
-# PrimerParcialPOo_DuquePacheco_LuisFernando_00013423
+# PrimerParcialPOO_DuquePacheco_LuisFernando
